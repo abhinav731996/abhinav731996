@@ -23,7 +23,7 @@
 
 ### 📫 Connect with me:
 - 📧 Email: [abhinav731996@gmail.com](mailto:abhinav731996@gmail.com)
-- 💼 LinkedIn: [https://www.linkedin.com/in/abhinav-sharma73/](https://www.linkedin.com/in/abhinav-sharma73/)}
+- 💼 LinkedIn: [https://www.linkedin.com/in/abhinav-sharma73/](https://www.linkedin.com/in/abhinav-sharma73/)
 
 ---
 
